@@ -18,14 +18,14 @@ I use them and recommend them to you.
 Here is the list of the useful websites:
 - https://cyhour.com
 - https://0xo.net
-- https://vpsilo.com
-- https://justmysocks.icu/
-- https://colotimes.blogspot.com/
+- https://b1.work
+- https://aduck.win/
+- https://ae.mba
 
 ## Social Media
 My social profiles:
-- https://twitter.com/zhijunie
+- https://twitter.com/o0oo8oo
 
 ## Donations
 Thank you for buying me a coffee.
-- Paypal: [zhijunie##gmail.com](https://paypal.me/yzhijun?locale.x=zh_XC)
+- Paypal: [BuyMeACoffee](https://paypal.me/yzhijun?locale.x=zh_XC)
